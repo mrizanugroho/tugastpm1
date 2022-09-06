@@ -21,3 +21,5 @@ Kejanggalan lain pun muncul pada rekaman berikutnya menyusul Putri Ferdy Sambo t
 Jika melihat dari jam matahari pada jam tersebut bayangan mobil semestinya tak mengarah ke situ.
 Jika disinkronkan dengan jam matahari bayangan mobil mengarah ke titik tersebut lebih cocok terjadi dalam rentang jam 11 Hingga jam 3 sore bukan 17.10,
 Kuat dugaan rekaman CCTV tidak diambil pada jam 5 sore seperti yang tertera dalam CCTV tersebut indikasi kejanggalan ini sudah di endus Komnas HAM ketika mereka menerima rekaman itu.
+
+Thats it for all.
